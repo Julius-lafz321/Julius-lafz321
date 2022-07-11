@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Julius-lafz321
 - 👀 I’m interested in rugby, family and god
-- 🌱 I’m currently learning about o
+- 🌱 I’m currently learning about how to start my own business
 - 💞️ I’m looking to collaborate on zoom
 - 📫 How to reach me just send an email to julius.lafaele08@gmail.com
 
